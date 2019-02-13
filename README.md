@@ -7,3 +7,6 @@ as most Technical Solutions do, and in fact actually helps us all by
 Sequestering Carbon Dioxide(CO2) while Producing Oxygen(O2) at roughly the rate of 1.5/1.  
 
 If you think this presentation has merit, please share with your friends and associates.
+We are actively seeking contributors to help, little tasks or big, we all must start somewhere.
+
+
