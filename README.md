@@ -21,6 +21,6 @@ we all need to start somewhere.
 
 Apr 5, 2019 - Major Breakthrough on Project, reducing the Time to complete, plus additional
 benefits for those below the poverty line (BTPL) in each Tropical country. Please read one page overview 
-"Project for Humanity", and contact us to prrticipate, either here or via email at  worldfixing2019@gmail.com
+"Project for Humanity", and contact us to participate, either here or via email at  worldfixing2019@gmail.com
 
 
