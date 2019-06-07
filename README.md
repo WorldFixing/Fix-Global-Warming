@@ -23,4 +23,8 @@ Apr 5, 2019 - Major Breakthrough on Project, reducing the Time to complete, plus
 benefits for those below the poverty line (BTPL) in each Tropical country. Please read one page overview 
 "Project for Humanity", and contact us to participate, either here or via email at  worldfixing2019@gmail.com
 
+June 7, 2019 - Finished reorganizing the Project to shorten the timeframe as well as create a workforce of
+those most in need - those Below The Poverty Line in 28 Tropical countries.  Please read the Overview,
+Project for Humanity, Just Imagine, and check out the Primer I slide show.  
+
 
