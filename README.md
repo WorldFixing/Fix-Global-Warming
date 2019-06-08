@@ -25,6 +25,8 @@ benefits for those below the poverty line (BTPL) in each Tropical country. Pleas
 
 June 7, 2019 - Finished reorganizing the Project to shorten the timeframe as well as create a workforce of
 those most in need - those Below The Poverty Line in 28 Tropical countries.  Please read the Overview,
-Project for Humanity, Just Imagine, and check out the Primer I slide show.  
+Project for Humanity, Just Imagine, and check out the Primer I slide show. 
+
+June 8, 2019 - Added Open Letter to Scientists (.odt and .doc)
 
 
